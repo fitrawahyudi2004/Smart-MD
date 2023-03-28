@@ -111,6 +111,3 @@ Set prefix
 * [`Allah SWT`](https://github.com/fitrawahyudi2004)
 * [`My parents`](https://github.com/fitrawahyudi2004)
 * [`All Friends`](https://github.com/fitrawahyudi2004)
-
-## ```Recode By ✏️```
-[![Zyko-MD](https://telegra.ph/file/c04f24cd3f2203ffe348f.jpg?size=20)](https://github.com/fitrawahyudi2004)
